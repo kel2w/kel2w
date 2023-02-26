@@ -1,1 +1,1 @@
-Hello world, I'm Kelly 👋
+Hi there, I'm Kelly 👋
